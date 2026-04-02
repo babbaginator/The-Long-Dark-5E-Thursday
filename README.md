@@ -25,7 +25,17 @@ Campaign notes and info for TLD Thursday group
  ### Sanctuary
 * Tuck (male, dwarf) - merchant caravan leader (from Sanctuary)
 
+## Things
 
+### Gear
+* Fish-a-rang - fish-shaped boomarang
+* Fish Hammer - Warhammer, but topped with a heavy iron fish with squarish face
 
+### Drinks & Potions
+* Firethistle Wine
+
+### Magic Items
+
+## Session Recaps
 
 
